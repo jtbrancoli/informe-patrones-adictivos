@@ -1,0 +1,1 @@
+# informe-patrones-adictivos
